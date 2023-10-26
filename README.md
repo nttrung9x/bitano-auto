@@ -9,7 +9,7 @@ Zalo: 0372.972.971
 Blog: MMO69.COM
 
 
-Video Demo 08-12-2023: https://www.youtube.com/watch?v=9lKMdAgujwQ&t=6s
+Video Demo 08-12-2023: https://www.youtube.com/watch?v=9lKMdAgujwQ
 
 
 New Update: 10-26-2023
