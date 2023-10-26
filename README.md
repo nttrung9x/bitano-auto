@@ -2,6 +2,8 @@
 
 Auto Sell USDT On Bitano.Net
 
+Download: https://mmo69.com/---Bitano-Download/Bitano_Auto_VIP_v1_Full.rar
+
 Liên hệ:
 
 Zalo: 0372.972.971
